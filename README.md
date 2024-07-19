@@ -3,3 +3,4 @@
 - [https://tonydonjr25.quora.com/](https://tonydonjr25.quora.com/)
 - [Tony Don Jr25](https://medium.com/@TonyDonJr25)
 - [https://youtu.be/M-ueKlfii8I](https://youtu.be/M-ueKlfii8I)
+- [https://x.com/TonyDonJr25](https://x.com/TonyDonJr25)

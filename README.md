@@ -1,0 +1,4 @@
+- [https://www.youtube.com/channel/UCybINunrwjWAg7Y1J890wlA](https://www.youtube.com/channel/UCybINunrwjWAg7Y1J890wlA)
+- [https://www.reddit.com/user/TonyDonJr25/](https://www.reddit.com/user/TonyDonJr25/)
+- [https://tonydonjr25.quora.com/](https://tonydonjr25.quora.com/)
+- [Tony Don Jr25](https://medium.com/@TonyDonJr25)
